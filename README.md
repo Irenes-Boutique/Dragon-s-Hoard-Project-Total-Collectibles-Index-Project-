@@ -1,1 +1,1 @@
-# Total-Collectibles-Index-Project-
+# Total Collectibles Index Project
